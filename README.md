@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on creating websites
 - 📫 How to reach me Twitter: @tellaswift 
 Insta: @stellammma
+- I don't look like the woman on the icon, she's just my icon
 
 
 <!---
