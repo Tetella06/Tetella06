@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Tetella06
-- 🌱 I’m currently learning programming 
-- 💞️ I’m looking to collaborate on creating websites
+
 
 
 <!---
