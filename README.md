@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tetella06
+- 👋 Hi, it's me @Tetella06
 
 
 
